@@ -1,3 +1,3 @@
 # Shadowrocket小火箭在线安装
 
-https://xhj.github.io
+https://qukemao.xyz/xhj.github.io/
